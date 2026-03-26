@@ -1,0 +1,2 @@
+# RegrasLegadopaulista
+Regras Legado Paulista
